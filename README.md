@@ -12,5 +12,3 @@
 ![](https://i.imgur.com/pmiBhiB.jpg)
 
 ![](https://i.imgur.com/tKS9DZ8.jpg)
-
-## Enjoy! :)
